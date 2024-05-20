@@ -1,1 +1,1 @@
-this was made to make one of my (maybe) friends very angry. His name is Thomas. This file contains a Never Gonna Give you Up link, the ROM for the original Super Mario Kart and  a shortcut for my music folder.
+this was made to make one of my (maybe) friends very angry. His name is Thomas. This file contains a Never Gonna Give you Up link, the ROM for the original Super Mario Kart and, shortcut for my music folder and the true best counter-strike game.
